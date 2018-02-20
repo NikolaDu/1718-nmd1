@@ -2,3 +2,5 @@
 
 ## New Media Design | Arteveldehogeschool
 
+Nikola Duerinck
+
